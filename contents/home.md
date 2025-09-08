@@ -2,7 +2,7 @@
 
 [![fifihuang06](https://img.shields.io/badge/fifihuang06-github-blue?logo=github)](fifihuang06.github.io)
 
-She is currently a Fellow in the Department of Radio and Television Studies at Nainjing University.
+She is currently a Fellow in the Department of Broadcasting and Television Studies at Nainjing University.
 
 #### Contact
 
