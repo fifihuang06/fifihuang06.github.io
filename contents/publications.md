@@ -1,3 +1,3 @@
 
-No prior publication experience
+No prior publication experience.
 
